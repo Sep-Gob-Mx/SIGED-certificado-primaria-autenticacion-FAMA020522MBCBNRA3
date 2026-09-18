@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-FAMA020522MBCBNRA3
+FAMA020522MBCBNRA3
